@@ -1,0 +1,1 @@
+# Crazycode-IFOBJECT-VAR-MEM-error-then-what
